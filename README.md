@@ -16,3 +16,15 @@ practical 4[click here](https://drive.google.com/file/d/1CcEY1DOkteeACT8m8AAY94N
 
 
 practical 5[click here](https://drive.google.com/file/d/1TONO8OpCOSelapAuuJZ0Ub43hBLa1W7v/view?usp=drivesdk)
+
+
+
+cisco certificate 1[click here](https://drive.google.com/file/d/1bFwMaF-S5Ti4iVKeWEEPFSxdkuLsmby5/view?usp=drivesdk)
+
+
+
+cisco certificate 2[click here](https://drive.google.com/file/d/1zWl5_HuEYmujGbWojXE2lM8qJ6HRhIyt/view?usp=drivesdk)
+
+
+
+video link[click here](https://youtube.com/shorts/LgQj0nU7kb0?si=TCWZgO4_60BmpREV)
